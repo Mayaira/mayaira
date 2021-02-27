@@ -8,7 +8,7 @@
 #### Mes compétences
 **Bureautiques** : Office 365, Google Suite  
 **Administratifs** : traiter les appels, répondre aux e-mails, classement, facturation
-**Comptabilité** : rapprochement bancaire, lettrage, écriture comptable, traitement de notes de frais, traitement des relances clients
+**Comptabilité** : rapprochement bancaire, lettrage, écriture comptable, traitement de notes de frais, traitement des relances clients  
 **Autres** : Projet voltaire (603) et apprentissage sur la programmation en cours ✨  
 
 #### Mes loisirs
