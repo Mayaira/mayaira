@@ -16,7 +16,7 @@
 #### Mes loisirs
 ✈️ Bulgarie, Angleterre, Espagne  
 🎮 Assassin's Creed, Pokemon, Zelda, Animal Crossing et pleins d'autres 😊  
-🎲 Jeu de rôle : Monde de Rayhana, et sur d'autres univers Médiévale et Post-apocalyptique  
+🎲 Jeu de rôle : Monde de Rayhana, et sur d'autres univers Médiévaux et Post-apocalyptique  
 📺 Adventure Time, The Good Place, Suits, Steven Universe, Marvel, DC, Disney 😻😻    
 
 #### Mes réseaux sociaux
