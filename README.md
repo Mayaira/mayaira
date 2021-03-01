@@ -3,8 +3,8 @@
 #### À propos de moi
 - 🌏 Annecy - France
 - 💻 **Assistante pédagogique** à _L'École By CCI_
--  🙋‍♀️ **Prête à de nouveaux challenges**
--  📚 **Apprend la programmation** : HTML/CSS**
+-  🙋‍♀️ **Ouverte à de nouveaux challenges**
+-  📚 **Apprend la programmation : HTML/CSS**
 
 
 #### Mes compétences
